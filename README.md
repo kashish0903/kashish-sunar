@@ -1,1 +1,1 @@
-that Front develop ai genearate websit.
+that Front develop is  ai genearate website.
